@@ -1,3 +1,3 @@
 Brittney Watson
-brittney.watson@s[artans.ut.edu
+brittney.watson@spartans.ut.edu
 Cyber Security
